@@ -1,4 +1,4 @@
-Safety instructions
+Safety instructions are super!!!
 Before you install or operate the device, you must read the safety information. Obey the instructions in this manual to prevent injuries, or damage to the equipment.
 
 This manual contains CAUTIONS and NOTES that are applicable for the safe operation of the device.
